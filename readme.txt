@@ -1,3 +1,2 @@
-Thanks for downloading this theme!
+site internet universitaire.
 
-Get more freebies, collection from http://bootstraptaste.com
